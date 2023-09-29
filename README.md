@@ -9,3 +9,8 @@ Soudain, un ***son inhabituel et fort*** se fit entendre venant des profondeurs 
 ### quel triste histoire 
 
 Il a marché 100km pendant 5 jours sous un soleil de plomb. il avait mal aux pieds et il n'avait plus rien à manger. Il a décidé de faire du stop pour rentrer plus vite.
+
+
+Mais finalement il a trouvé une boite de pensement minion, celle-ci était pleine. Il soigna ses plaies et reparti sur sa route tala alalal. Rien ne lui fait peur, il vit l'instant présent et il est heureux.
+
+#### ET sousdain
